@@ -1,1 +1,1 @@
-# rsschools.ng
+# Schooling in Rivers State Made easy
